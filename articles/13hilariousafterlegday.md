@@ -1,5 +1,3 @@
-##### 13 Hilarious "After Leg Day" Memes For People Who Really Train Legs
-
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/arnold-19.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/arnold-schwarzenegger-10.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/arnold-schwarzenegger-11.jpg?raw=true) 
@@ -45,4 +43,3 @@
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/arnold-schwarzenegger-8.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/arnold-schwarzenegger-9.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/arnold-schwarzenegger_0.jpg?raw=true) 
-
