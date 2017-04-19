@@ -1,5 +1,5 @@
 ##### **45张有趣罕见和强大的施瓦辛格图片**
-###### 2017-04-19 GYM++
+###### **2017-04-19 GYM++**
 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/45funnyrarepowerful/arnold-19.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/45funnyrarepowerful/arnold-schwarzenegger-10.jpg?raw=true) 
