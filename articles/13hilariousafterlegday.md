@@ -5,7 +5,6 @@
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/ld_cardio.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/ld_dibs.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/ld_dog.jpg?raw=true) 
-![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/ld_feature.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/ld_go_on.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/ld_in_car.jpg?raw=true) 
 ![](https://github.com/xupea/fitness-life-style/blob/master/articles/13hilariousafterlegday/ld_officer.jpg?raw=true) 
